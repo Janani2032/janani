@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @uthaara
+- 👋 Hi, I’m @janani sri 
 - 👀 I’m interested in -Android App Development 
 - 🌱 I’m currently purusing -2nd year (B.E,ECE)
 - 💞️ I’m looking to collaborate on -App developer companies
